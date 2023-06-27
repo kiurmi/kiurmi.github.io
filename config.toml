@@ -1,6 +1,7 @@
-baseURL = "/"
+baseURL = "https://kiurmi.github.io"
 languageCode = "en-us"
-theme = "poison"
+theme = "poison2"
+publishDir = "docs"
 paginate = 10
 pluralizelisttitles = false   # removes the automatically appended "s" on sidebar entries
 
