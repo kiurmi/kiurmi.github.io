@@ -32,7 +32,7 @@ I capi di abbigliamento in questione variano in base alla sottocultura, possono 
 ----------
 
  Specificate le varietà presenti all'interno della cultura stessa ci sono comunque alcuni capi accessori e cosmetici che accomunano grosso modo tutte le sottoculture:
-  accessori in argento, come *anelli*, *collane*, *catene* ecc...; in generale dei vestiari che rientrano nelle sfumature del nero, smalto nero, obretto e rossetto nero, tinte cosmetiche molto chiare usate come base make-up, croci e rosari, gioielli rappresentanti creature della notte e simboli della cultura goth (a cui è stato attribbuito un significato); 
+  accessori in argento, come *anelli*, *collane*, *catene* ecc...; in generale dei vestiari che rientrano nelle sfumature del nero, smalto nero, obretto e rossetto nero, eye-liner spesso molto pronunciato, tinte cosmetiche molto chiare usate come base make-up, croci e rosari, gioielli rappresentanti creature della notte e simboli della cultura goth (a cui è stato attribbuito un significato); 
   ma perchè i gioielli proprio in **argento**? Perchè i goti si definivano i figli della notte, dunque adoravano tutto ciò correlato all'oscurità, e quest'ultimo essendo un metallo lunare, rispecchia l'estetica di questa sottocultura.
 Per quanto riguarda la capigliatura,la più comune acconciatura goth è quella con capelli molto voluminosi (volume acquisto grazie all'applicazione di lacca ed aver pettinato i capelli partendo dalle punte e andando verso le radici, anzichè il contrario) spesso (ma non per forza) accompagnati dalla frangetta sulla fronte.
 
