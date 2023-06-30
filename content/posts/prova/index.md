@@ -63,7 +63,7 @@ Alcuni esponenti: *Ikon, **The Sisters of Mercy**, London After Midnight, Skelet
 L'ethereal wave è un sottogenere della dark wave, si distingue abbastanza dai generi citati sopra, si sviluppa molto dopo, fine anni novanta nel Regno Unito e Stati Uniti. Qui si usa uno sfondo musicale atmosferico grazie all' uso di **riverberi** e **deley**. Spesso è presente una voce sussurrata o una **voce lirica femminile** che hanno l intenzione di creare un'atmosfera ultraterrena. A differenza degli altri generi qui non si vuole trasmettere sensaazioni negative, l'atmosfera è sempre tetra e cupa, ma si vuole trasemttere principalmente **mistero**, un qualcosa che ha una verità accoulta dietro, un significato **esoterico**, non a caso il termine "etereo" si usa per indicare qualcosa di soprannaturale e non materiale, o metaforicamente parlando, qualcosa di troppo bello per esistere. L'ethereal wave però è uno tra tutti questi sottogeneri che ha avuto non troppa popolarità.
 Strumenti che si prediligono: sintetizzatore, violino, flauto, pianoforte, drum machine, chitarra, basso, Theremin.
 !["alt text"](etherealwave.jpeg)
-Alcuni esponenti: *Autumn's Grey Solace, **Cocteau Twins** This Mortal Coil, This Ascension, The Birthday Party;*
+Alcuni esponenti: *Autumn's Grey Solace, **Cocteau Twins**, This Mortal Coil, This Ascension, The Birthday Party;*
 
 
 ---------------
