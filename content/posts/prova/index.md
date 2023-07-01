@@ -48,7 +48,7 @@ Alcuni esponenti: *BURNING IMAGE, MIGHTY SPHINCTER, EX-VOTO KOMMUNITY FK, FRANKE
 La neoclassic dark wave è un **sottogenere della dark wave** e nasce verso la metà degli anni ottanta. Una sua caratteristica è la presenza di una atmosfera eterea alimentata da voci di soprano, inutile dire che si chiama così per via di una forte influenza della **musica classica**, quest'ultima combinata con **energie cupe e malinconiche**. Questa fa spesso uso di stili formali associati alla musica orchestrale.
 Strumenti che si prediligono: pianoforte, clavicembalo, strumenti ad arco, sintetizzatore;
 !["alt text"](inthenurcery.jpeg)
-Alcuni esponenti: *Dead can dance, **In the Nurcery**, Black Tape for a Blue Girl, Elend , Dark Sanctuary, Sopor Aeternus & The Ensemble of Shadows;*
+Alcuni esponenti: *Dead can dance, **In the Nursery**, Black Tape for a Blue Girl, Elend , Dark Sanctuary, Sopor Aeternus & The Ensemble of Shadows;*
 
 -------------
 **COLD WAVE**
